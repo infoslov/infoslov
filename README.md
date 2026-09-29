@@ -1,1 +1,1 @@
-<img width="498" height="277" alt="uraraka" src="https://github.com/user-attachments/assets/a34dffe4-3c1a-4a15-9b5d-3cffe94cf34a" />
+<img width="498" height="267" alt="_com apple Pasteboard 6b8CYm" src="https://github.com/user-attachments/assets/71152855-558a-4017-9f43-252dff15997a" />
