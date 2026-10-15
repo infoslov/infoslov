@@ -1,3 +1,3 @@
 ![](https://komarev.com/ghpvc/?username=infoslov&label=homos&color=red)
 
-<img width="1142" height="986" alt="JPEG image" src="https://github.com/user-attachments/assets/2157b310-e306-4380-8515-d59ce9716621" />
+<img width="1369" height="1204" alt="_com apple Pasteboard 2tGAFK" src="https://github.com/user-attachments/assets/2e20bb94-7755-4feb-b59a-b16af6dd0ebe" />
