@@ -1,4 +1,4 @@
 ![](https://komarev.com/ghpvc/?username=infoslov&label=hopelings&color=green)
 
 
-<img width="1342" height="1332" alt="JPEG image" src="https://github.com/user-attachments/assets/9ebcdb78-c40e-4160-becf-c2e9649faca1" />
+<img width="1140" height="1049" alt="JPEG image" src="https://github.com/user-attachments/assets/b163197c-4ef1-4a02-95fc-a9a5ed71d57b" />
