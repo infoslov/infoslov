@@ -1,4 +1,4 @@
-![](https://komarev.com/ghpvc/?username=infoslov&label=hopelings&color=yellow)
+![](https://komarev.com/ghpvc/?username=infoslov&label=cuties&color=pink)
 
 
-<img width="1140" height="1049" alt="JPEG image" src="https://github.com/user-attachments/assets/b163197c-4ef1-4a02-95fc-a9a5ed71d57b" />
+<img width="618" height="474" alt="tumblr_3198d4939749e51ac8b2945d48dcd99b_4ed3856c_640" src="https://github.com/user-attachments/assets/79c35e3c-a9e8-4630-a276-0b950ce532ac" />
