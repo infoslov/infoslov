@@ -6,4 +6,5 @@
 <img width="539" height="452" alt="tumblr_eac3cf1ff2ae44c4002f64d8415a133f_3ad9421a_540" src="https://github.com/user-attachments/assets/c51a9c37-a3f2-44d7-ac9f-d062e74d992f" />
 
 he him             18+ dniuf
+
 im under 15          iwc unless ur around my age OR close friends
