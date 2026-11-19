@@ -3,4 +3,4 @@
 
 shuichi saihara hvyfictkin possibly akechi kin IDK
 
-he,him
+sign my ata or strawpg and especially read my strawpg byi
