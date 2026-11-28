@@ -2,3 +2,5 @@
 
 
 shuichi saihara hvyfictkin possibly akechi goro kin
+
+watch da shuake summerboy animatic
